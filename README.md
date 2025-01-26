@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @whangzhu996
-- 👀 I’m interested in ...Tech, operations, devops, linux, 
+- 👀 I’m interested in ...Tech, operations, devops, linux, social, earth
 - 🌱 I’m currently learning ...lots
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
