@@ -6,7 +6,7 @@
 - 👀 ....
 - 😄 Pronouns: ...五行珠996
 - ⚡ Fun fact: ...
-- 🌊 Just Believe another day
+- 🌊 Another day...Just Believe..
 
 <!---
 whangzhu996/whangzhu996 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
