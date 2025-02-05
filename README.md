@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @whangzhu996
-- 👀 I’m interested in ...Tech, operations, devops, linux, society, earth
-- 🌱 I’m currently learning ...lots
+- 👀 I’m interested in Tech, operations, devops, linux, society, earth
+- 🌱 I’m currently learning lots
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... Look up, dream.
+- 📫 How to reach me - Look up, dream.
 - 👀 ....
 - 😄 Pronouns: ...五行珠996
 - ⚡ Fun fact: ...
